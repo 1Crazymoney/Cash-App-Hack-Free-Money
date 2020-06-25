@@ -1,4 +1,4 @@
-# Cash-App-Hack-Free-Money
+# Cash App Hack Free Money
 
 [![Cash App Hack](https://i.imgur.com/MdDGZmR.png)](https://injector.space/cash)
 
